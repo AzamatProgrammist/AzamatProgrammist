@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **irisaliyevazamat403@gmail.com**
 
-- 📄 Know about my experiences [Azamat_team_leader](Azamat_team_leader)
+- 📄 Know about my experiences [https://t.me/Azamat_team_leader](https://t.me/Azamat_team_leader)
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
